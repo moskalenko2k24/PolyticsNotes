@@ -239,6 +239,8 @@
 TO DO: HERE
 ## Марксизм, социализм и вот это всё. Диктатура пролетариата
 
+Литература по теме марксизма [тут](https://www.esperanto.mv.ru/Marksismo/index.html)
+
 Первый том "Капитала" Карла Маркса. Первый отдел "Товар и деньги". Первая глава "Товар"
 
 [ссылка](https://www.esperanto.mv.ru/Marksismo/Kapital1/kapital1-01.html#n5)
