@@ -3,15 +3,17 @@
 _Данная статья показалось мне годной, отсюда можно взять какие-то идеи,
 чтобы статья не успела исчезнуть, я делаю копипаст сюда, оставляя ссылку на первоисточник_
 
-https://talentsy.ru/blog/chto-takoe-kognitivno-povedencheskaya-terapiya/
+## Ссылки
 
-И ещё пару интересных ссылок
+[Эта статья](https://talentsy.ru/blog/chto-takoe-kognitivno-povedencheskaya-terapiya/)
 
 [Лечение с помощью гештальт-терапии](https://talentsy.ru/blog/lechenie-s-pomoshhju-geshtalt-terapii-tehniki-i-uprazhnenija-dlja-otrabotki-nezakrytyh-sobytij-v-psihologicheskom-konsultirovanii/)
 
 [Что такое позитивная психотерапия](https://talentsy.ru/blog/pozitivnaya-psikhoterapiya/)
 
 [Что такое посттравматический синдром](https://talentsy.ru/blog/ptsr-chto-eto/)
+
+---
 
 Когнитивно-поведенческая терапия (КПТ) представляет собой психологический подход, эффективно
 помогающий разбираться с разными запросами. Методика используется, в том числе для борьбы с
