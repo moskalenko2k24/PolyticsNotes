@@ -1,0 +1,34 @@
+# Национализм и националисты
+
+Ключевые персонажи:
+
+- Ирина Фарион
+- Илья Кива – переобулся под конец, и его типа "убили"
+- Дмитрий Корчинский – этот был против запада и НАТО, переобулся в националисты
+- Ярош – с ним мемы были какие-то, что кругом находили визитки Яроша, при террактах в РФ
+кажется
+- Игорь Владимирович Мосийчук, эпизод с "поездами дружбы"
+
+https://ru.wikipedia.org/wiki/%D0%9C%D0%BE%D1%81%D0%B8%D0%B9%D1%87%D1%83%D0%BA,_%D0%98%D0%B3%D0%BE%D1%80%D1%8C_%D0%92%D0%BB%D0%B0%D0%B4%D0%B8%D0%BC%D0%B8%D1%80%D0%BE%D0%B2%D0%B8%D1%87
+
+Также гуглить по запросам: "игорь мосийчук поезда дружбы", "поезд дружбы фейк",
+само собой гуглить и изучать российские версии и доказательства, первоисточники...
+
+## Поезда дружбы в 2014. Ссылки
+
+https://ru.krymr.com/a/26906962.html
+
+https://sevastopol.su/news/eks-pravosek-rasskazal-kak-gotovil-poezd-druzhby-v-krym-i-sevastopol-v-marte-2014-go
+
+https://www.dw.com/ru/%D0%BC%D0%B8%D1%84%D1%8B-%D0%B8-%D1%80%D0%B5%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D1%81%D1%82%D1%8C-%D0%BF%D1%80%D0%B8-%D0%B0%D0%BD%D0%BD%D0%B5%D0%BA%D1%81%D0%B8%D0%B8-%D0%BA%D1%80%D1%8B%D0%BC%D0%B0-%D0%B2%D0%B7%D0%B3%D0%BB%D1%8F%D0%B4-%D0%B4%D0%B2%D0%B0-%D0%B3%D0%BE%D0%B4%D0%B0-%D1%81%D0%BF%D1%83%D1%81%D1%82%D1%8F/a-19120851
+
+https://gordonua.com/news/maidan/pravyy-sektor-napravit-v-krym-poezd-druzhby-11469.html
+
+https://112.ua/politika/pravyy-sektor-sformiruet-poezd-druzhby-i-ne-dopustit-raskola-ukrainy-mosiychuk-26132.html
+
+## Поезда дружбы 1992
+
+[Про первый "поезд дружбы" националистов в 1992-м году в Крым](https://varjag2007su.livejournal.com/2175776.html)
+
+[Первый "поезд дружбы"](https://colonelcassad.livejournal.com/4064997.html)
+
