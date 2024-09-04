@@ -14,3 +14,12 @@
 
 ВО "Свобода", их "антисемитизм". Происхождение Тягнибока.
 С кем связана ВО "Свобода" и можно ли это доказать...
+
+## Фарион про русскоязычных
+
+https://suspilne.media/culture/611357-farion-rozkritikuvala-rosijskomovnih-vijskovih-ombudsmen-pisla-cogo-zvernuvsa-do-policii-ta-sbu/
+
+[Фаріон розкритикувала російськомовних військових. Омбудсман після цього звернувся до поліції та СБУ](https://suspilne.media/culture/611357-farion-rozkritikuvala-rosijskomovnih-vijskovih-ombudsmen-pisla-cogo-zvernuvsa-do-policii-ta-sbu/) \
+[ЇДЬТЕ ДО мОСКВИ на танку! ФАРІОН ще раз "РОЗНЕСЛА" к@ц@nоротих | Рандеву](https://www.youtube.com/watch?v=9Zy2fvLBfaQ)
+
+
