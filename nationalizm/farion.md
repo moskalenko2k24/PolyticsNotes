@@ -22,4 +22,9 @@ https://suspilne.media/culture/611357-farion-rozkritikuvala-rosijskomovnih-vijsk
 [Фаріон розкритикувала російськомовних військових. Омбудсман після цього звернувся до поліції та СБУ](https://suspilne.media/culture/611357-farion-rozkritikuvala-rosijskomovnih-vijskovih-ombudsmen-pisla-cogo-zvernuvsa-do-policii-ta-sbu/) \
 [ЇДЬТЕ ДО мОСКВИ на танку! ФАРІОН ще раз "РОЗНЕСЛА" к@ц@nоротих | Рандеву](https://www.youtube.com/watch?v=9Zy2fvLBfaQ)
 
+Законспектировать бы видео
 
+3 минута. МЫ подавали законопроект, чтоб была КРИМИНАЛЬНАЯ ответственность
+за неуважение государственного языка. Для чиновников.
+
+https://www.radiosvoboda.org/a/mova-zachist-movy-kremin-upovnovazheniy/32695112.html
